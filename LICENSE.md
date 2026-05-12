@@ -1,4 +1,4 @@
-#  
+#  Experience plants vs brainrots like never before with plants vs brainrots Scripts rare, the #1 Script. Includes esp and undetectable for unbeatable
 
 
 
